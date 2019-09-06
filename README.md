@@ -1,2 +1,0 @@
-# Netguru_task
- 
